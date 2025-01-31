@@ -33,7 +33,7 @@ Here are some ideas to get you started:
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1M8Va0KQkCGLt00HYLfJI8LI3xYngiJNa/view?usp=drive_link](https://drive.google.com/file/d/1M8Va0KQkCGLt00HYLfJI8LI3xYngiJNa/view?usp=drive_link)
 
-- ⚡ Fun fact **3x National Level Hackathon Winner**
+- ⚡ Fun fact: **3x National Level Hackathon Winner**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
